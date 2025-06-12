@@ -1,5 +1,7 @@
 # Béatrice Lebeslour
 
+<img src="./beatrice-lebeslour-plants-comics-tea.png" alt="Béatrice Lebeslour – workspace with plants, comics and tea" width="600">
+
 Hi, I’m Béatrice Lebeslour. I live in France and often travel across Europe, especially to Italy.  
 Outside of work, I care for plants and write about how to understand and support their growth. I also have a deep interest in comics and the quiet rituals that shape everyday life.
 
