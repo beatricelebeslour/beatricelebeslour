@@ -1,6 +1,6 @@
 # Béatrice Lebeslour – Plant Care & Notes
 
-<img src="./beatrice-lebeslour-plants-comics-tea.png" alt="Béatrice Lebeslour – workspace with plants, comics and tea" width="600">
+
 
 Hi, I’m Béatrice Lebeslour. I live in France and often travel across Europe, especially to Italy.
 
