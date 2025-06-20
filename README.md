@@ -1,6 +1,6 @@
 # Béatrice Lebeslour – Plant Care & Notes
 
-
+![Beatrice Lebeslour gardening in a plant-care ritual outfit](https://github.com/beatricelebeslour/beatricelebeslour/blob/main/beatrice-lebeslour-jardinage-soin-plantes-combinaison.png?raw=true)
 
 Hi, I’m Béatrice Lebeslour. I live in France and often travel across Europe, especially to Italy.
 
